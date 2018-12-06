@@ -1,1 +1,0 @@
-# qshat.github.io
